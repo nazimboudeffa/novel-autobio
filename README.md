@@ -1,3 +1,3 @@
 # novel-autobio
 
-My author name is Jaques Aïssa, in any book I write
+My author name is Jacques Aïssa, in any book I write
