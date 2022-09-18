@@ -1,3 +1,7 @@
-départ en France en juillet 1994
+école collège lycée à El Biar
 
-études à Rennes
+- école Paul Bert
+- collège Parc des Pins
+- Lycée Bouattoura
+
+BAC avec mention
