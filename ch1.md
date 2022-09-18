@@ -1,3 +1,1 @@
-naissance à Hussein Day
-
-grandit à El Biar
+naissance à Hussein Day jusqu'à déménagement à El Biar
