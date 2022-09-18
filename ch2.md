@@ -4,4 +4,4 @@
 - collège Parc des Pins
 - Lycée Bouattoura
 
-BAC avec mention
+BAC avec mention, 18 en maths
