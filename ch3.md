@@ -8,4 +8,4 @@ il a laissé toute sa famille en Algérie
 
 terrorisme
 
-transitions sur l'an 2000
+transitions sur l'an 2000 déménagement à Paris
