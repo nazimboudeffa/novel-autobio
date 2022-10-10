@@ -1,3 +1,5 @@
-achat du premier appartement avec la blonde à Roanne
+arrivée à Roanne
+
+achat du premier appartement avec la blonde
 
 galères en tout genres
